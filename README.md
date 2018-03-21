@@ -4,3 +4,4 @@ I am, however, still a beginner
 
 
 Codes can change lives
+and livelihoods
